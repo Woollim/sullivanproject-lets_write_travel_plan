@@ -20,7 +20,8 @@
 ***주소***: [강원도 강릉시 경포동 율곡로3139번길 24]
 
 ***여행지 정보***: 오죽헌  
-사진찍기 좋을 것 같다
+사진찍기 좋을 것 같다  
+주차비 무료
 ![image](https://lh3.googleusercontent.com/proxy/bv4S3751rpgHvksaHIrP4YKkyu4sRYfJLfxs08kUR7JywL2YY3toXYL9Bg9no7h7U6mQecWMC9S_dFCSbxpM6njizvBrIjpO-MTEaimvLbMfZ52Ln85s_hlSExC3cfFX7VygHxpJuzscaYGxMxfsMA)
 
 ***입장료 및 소비가격***: 입장료 3000원
@@ -51,17 +52,16 @@
 
 
 
-## [엄지네 포장마차]
+## [연안식당]
 
-***주소***: 강원도 강릉시 옥천로 47
+***주소***: 강원도 강릉시 교1동 하슬라로206번길 20-12
 
 ***먹고자하는 음식***: 꼬막비빔밥
 
-***먹고자하는 음식의 가격***: 꼬막무침 30000원
+***먹고자하는 음식의 가격***: 11000원
 
 ✍️ 메모
-- 맛스타그램(SNS)로 유명해져서 대기줄이 꽤 있다.
-- 조금 일찍 가야 할 듯
+- 서울지역에도 있는 프렌차이즈 같다
 
 
 
