@@ -60,7 +60,7 @@
 
 입장료 및 소비가격:
 
-<img src="/Users/gimgeon/Library/Application Support/typora-user-images/image-20200523142157771.png" alt="image-20200523142157771" style="zoom:50%;" />
+![img](https://postfiles.pstatic.net/MjAxOTExMjBfMzUg/MDAxNTc0MjUwODk5MjA2._9gDbpiVB57RL0HC-a9sOZe1SFZLElSuRIOPbHNWOw8g._QWWpHoCfQIS_1cSmcF6y7ZDHKyJbtVfHw_XX37d36Qg.JPEG.yeongtwo/IMG_7076.JPG?type=w773)
 
 ✍️ 메모
 
